@@ -1,0 +1,2 @@
+# thepiratebays
+ illegal
